@@ -1,2 +1,2 @@
-# Dumang123
+# Pro mah bebas Kimak
 SpamSms
